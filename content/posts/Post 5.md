@@ -2,7 +2,6 @@
 title: "HOME REMODELING POST"
 date: 2023-02-02T14:24:03-05:00
 draft: false
-description:  Need a home fix? Don't DIY - hire out! Discover when it's best to call a pro for home improvement.
 ---
 
 # When To Hire Out Home Improvement Services Instead Of Diy

@@ -2,7 +2,6 @@
 title: "REMODELING YOUR HOME ON A BUDGET"
 date: 2023-02-02T15:19:07-04:00
 draft: false
-description:  Remodling your house is a rewarding feat - making sure your budget hits home is everything
 ---
 
 # 5 Tips For Remodeling A Room In Your House On A Budget
