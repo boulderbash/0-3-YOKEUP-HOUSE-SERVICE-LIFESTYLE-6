@@ -2,6 +2,7 @@
 title: "LANDSCAPING IDEAS"
 date: 2023-01-22T13:33:05-07:00
 draft: false
+description:  Landscaping for a better home value
 ---
 
 # Transform Your Yard: 7 Landscaping Ideas To Improve Your Home's Curb Appeal

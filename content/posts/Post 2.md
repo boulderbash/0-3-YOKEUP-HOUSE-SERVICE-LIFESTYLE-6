@@ -2,6 +2,7 @@
 title: "DIY HOUSE REPAIR"
 date: 2023-02-20T15:20:02-03:00
 draft: false
+description:  Repairing your house isn't for the faint of heart, but it can be done, and people do it all the time!
 ---
 
 # Diy House Repair: When To Call In The Pros And When To Tackle It Yourself
