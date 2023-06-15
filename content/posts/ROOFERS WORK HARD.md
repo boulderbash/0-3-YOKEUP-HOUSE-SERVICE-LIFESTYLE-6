@@ -45,7 +45,7 @@ Here are some examples of the latest tools and equipment used by professional ro
 - Moisture meters that can detect hidden leaks or water damage.
 - Safety harnesses and fall protection gear to ensure worker safety while on the roof.
 
-Hiring a professional roofer not only ensures quality workmanship but also guarantees the use of state-of-the-art tools and equipment, which ultimately leads to superior results. So if you want your roof repair or installation project done right the first time around, it is best to leave it in the hands of skilled professionals.
+Hiring a professional roofer not only ensures quality workmanship but also guarantees the use of state-of-the-art tools and equipment, which ultimately leads to superior results. So if you want your roof repair or installation project done right the first time around, it is best to leave it in the hands of skilled professionals.  Also if you ever get damage from falling trees, which often hit the roof - those trees need to be serviced, so it can be good to call a good [tree service company](https://yokeup.net/posts/hiring-a-tree-service)
 
 ## Cost-Effective Solutions for Long-Term Results
 

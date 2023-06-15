@@ -44,7 +44,7 @@ Minimalist design typically features neutral colors, simple geometric shapes, an
 
 ## Conclusion
 
-Incorporating modern design ideas into your home remodel can elevate the overall look and feel of your living space. Biophilic design, open-concept living, bold pops of color, maximizing natural light, and minimalism are just a few design elements to consider.
+Incorporating modern design ideas into your home remodel can elevate the overall look and feel of your living space. Biophilic design, open-concept living, bold pops of color, maximizing natural light, and minimalism are just a few design elements to consider.  Some people like a variety of textures, so you can go with anything from linen to [concrete](https://yokeup.net/posts/concrete-improves-your-home/)
 
 Biophilic design brings nature indoors by incorporating natural materials like wood and stone, as well as plants and water features. Embracing open-concept living involves knocking down walls to create a more spacious and interconnected floor plan. Bold pops of color add personality and vibrancy, while maximizing natural light creates an inviting atmosphere that promotes relaxation.
 

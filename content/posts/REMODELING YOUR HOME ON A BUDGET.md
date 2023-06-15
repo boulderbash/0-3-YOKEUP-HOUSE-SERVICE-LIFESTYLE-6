@@ -51,7 +51,7 @@ Another strategy is to prioritize functionality over aesthetics. Choose simple y
 
 ## Hiring Professionals for Key Tasks
 
-Hiring professionals for key tasks is like investing in a trustworthy mechanic to repair your car; it may cost more upfront, but the long-term benefits outweigh the initial expense. While DIY projects can save money, it is important to recognize when a professional's expertise is required. For instance, electrical and plumbing work should always be handled by licensed professionals to ensure safety and legality.
+Hiring professionals for key tasks is like investing in a trustworthy mechanic to repair your car; it may cost more upfront, but the long-term benefits outweigh the initial expense. While DIY projects can save money, it is important to recognize when a professional's expertise is required. For instance, electrical and plumbing work should always be handled by licensed professionals to ensure safety and legality.  Also, if you have any question about the vertical stack, and how it ties to the roof, it might be good to have a knowledgeable friend look at it, or even a [roofing company](https://yokeup.net/posts/roofers-work-hard/)
 
 Additionally, hiring professionals for challenging tasks such as flooring installation or drywall repairs can result in a higher quality finished product. These experts have years of experience and knowledge that allows them to complete the job efficiently and effectively. By outsourcing these types of tasks, homeowners can avoid costly mistakes and minimize potential damage to their homes. 
 
