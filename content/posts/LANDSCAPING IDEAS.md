@@ -51,7 +51,7 @@ One of the advantages of vertical gardens is that they can be customized accordi
 
 ## Conclusion
 
-Transforming your yard is an exciting way to improve your home's curb appeal. Adding colorful flower beds can instantly enhance the aesthetic of your front yard and create a welcoming atmosphere for visitors. Incorporating hardscaping features like walkways and retaining walls not only provide structure but also increase functionality.
+Transforming your yard is an exciting way to improve your home's curb appeal. Adding colorful flower beds can instantly enhance the aesthetic of your front yard and create a welcoming atmosphere for visitors. Incorporating hardscaping features like walkways and retaining walls not only provide structure but also increase functionality.  Check out our next post
 
 Creating a focal point with a water feature elevates the overall ambiance of your outdoor space while enhancing privacy with tall shrubs or trees provides seclusion from prying eyes. Lastly, maximizing space with vertical gardens and planters is an innovative solution for homeowners who want to add more greenery without sacrificing square footage.
 
